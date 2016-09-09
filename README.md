@@ -1,2 +1,5 @@
 # howudoin-world
-actively supplementing time-honored traditions with new-age variations
+
+I frequently supplement time-honored tradition, with new-age variation.
+
+I also like pie.
